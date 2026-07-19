@@ -11,7 +11,7 @@
 
 [Cardinal Points (2026 Remaster) - Coil](https://muterecords.bandcamp.com/track/cardinal-points-2026-remaster)
 
-Antisocial, Autistic, + shy. Be nice to me I'm dumb and do not know how to make conversation with people my age, but the intent is there. Spiritually a grown man. I don't have a group or anything. If you are a popular Homestuck person DNI with me or anyone I know (Unless u are my friend). 
+Antisocial, Autistic, + shy. Be nice to me I'm dumb and do not know how to make conversation with people my age, but the intent is there (Though I'm usually in editor). Spiritually a grown man. I don't have a group or anything. If you are a popular Homestuck person DNI with me or anyone I know (Unless u are my friend). I'm ok with ships but not as my Dirks.
 
 DirkJake, Nonbinary MLM Jake, & MLM Dirk truther. I don't have much to say about myself publicly, I am a Knight of Void, or Prince of Heart. I kin Jake English, Vivec, Enki Ankarian from F&H, & some. I like Morrowind, Psychonauts, horror, and more. AroAce Nonbinary fag. (AroAce because I can't pull.)
 
