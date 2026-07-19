@@ -5,7 +5,8 @@
 
 
 
-<img width="200" height="100" alt="Image" src="https://64.media.tumblr.com/71e5deba59e8d0a62c956f5970423273/5c37a6b6d41071de-65/s540x810/40242691e035cf2d5c35786737ddcd3d6ffb06dc.gifv"> ![Main](https://64.media.tumblr.com/1de88e5809edbc078d2ab933fcec09d8/c823d42149d6109c-10/s400x600/36f7813ae17c982e5c7607378dc0f0e54c87bacc.gifv) <img width="200" height="100" alt="Prince Of Darkness by Megadeth" src="https://64.media.tumblr.com/adea8140cc5834788c99ca8cece5d232/5eaf97e18e8ccd61-ae/s1280x1920/6fab0ab570ad7e58cc201ac55729300f9b9e4f79.jpg">
+<![Main](https://64.media.tumblr.com/1de88e5809edbc078d2ab933fcec09d8/c823d42149d6109c-10/s400x600/36f7813ae17c982e5c7607378dc0f0e54c87bacc.gifv)
+<img width="200" height="100" alt="Prince Of Darkness by Megadeth" src="https://64.media.tumblr.com/adea8140cc5834788c99ca8cece5d232/5eaf97e18e8ccd61-ae/s1280x1920/6fab0ab570ad7e58cc201ac55729300f9b9e4f79.jpg"> <img width="200" height="100" alt="Image" src="https://64.media.tumblr.com/71e5deba59e8d0a62c956f5970423273/5c37a6b6d41071de-65/s540x810/40242691e035cf2d5c35786737ddcd3d6ffb06dc.gifv">
 
 [Cardinal Points (2026 Remaster) - Coil](https://muterecords.bandcamp.com/track/cardinal-points-2026-remaster)
 
