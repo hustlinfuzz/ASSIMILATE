@@ -17,6 +17,8 @@ DirkJake, Nonbinary MLM Jake, & MLM Dirk truther. I don't have much to say about
 
 My tumblr is @ovrkl, TWT @THUSTRANSCRIPT, and discord @dersedreamt, check my stuff out. (Unremarkable.)
 
+![](https://komarev.com/ghpvc/?username=hustlinfuzz&color=f2a400)
+
 ![Blinkie](https://64.media.tumblr.com/c31d94e14317e28bc820d683ad8b9971/fbafb155c8345207-16/s250x400/09d91017a2f52a7753dae12e19764c787e2d8536.gifv)![Blinkie](https://64.media.tumblr.com/203abc6b08e3b4eea5eebc84cc155e3e/9b7f55310f077f5b-56/s250x400/b3c9da40030f48c1a6fe479c265eee1100ba752d.gifv)
 
 ![Stamp](https://64.media.tumblr.com/fb526d8d100dd530a02eede2cb242014/fbafb155c8345207-fb/s250x400/30ba7e9f679df5381015d197ed1885f3c5ecc497.pnj)![Stamp](https://64.media.tumblr.com/dde31b31d6cdce3749023e4e693e1df9/21c673044cd99f02-25/s250x400/2c4369c7ce193bb984ba5a2ce0d734f0b5e80959.pnj)![Stamp](https://64.media.tumblr.com/cf1d3ee4f95b65f68e5fe30c5a83e5fb/dcb18b73cf31f08d-a4/s250x400/e248aaf0d3b6841141091e0608cfdbb87dbdc41a.pnj)
